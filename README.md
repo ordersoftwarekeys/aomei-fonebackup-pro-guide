@@ -26,7 +26,7 @@ While Apple offers iCloud and iTunes, many users prefer more flexibility and loc
 
 ##  What Is AOMEI FoneBackup Pro?
 
-[AOMEI FoneBackup Prot](https://ordersoftwarekeys.com/product/aomei-fonebackup-license-key/) is a professional iOS data management software for Windows users. It allows you to:
+[AOMEI FoneBackup Pro](https://ordersoftwarekeys.com/product/aomei-fonebackup-license-key/) is a professional iOS data management software for Windows users. It allows you to:
 
 - Back up iPhone data to a PC  
 - Restore data selectively or fully  
